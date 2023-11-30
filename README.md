@@ -9,4 +9,3 @@
 
 ![Screenshot 2023-11-30 163513](https://github.com/RinkiMandal/project/assets/139066889/69a1ae29-d6ea-4293-a9e1-6fd84ed23ed3)
 
-![Screenshot 2023-11-30 163513](https://github.com/RinkiMandal/project/assets/139066889/3d7aff7a-a30e-46d9-bfc9-37a95edb4bdc)
